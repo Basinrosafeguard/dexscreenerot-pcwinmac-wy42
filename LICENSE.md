@@ -1,4 +1,4 @@
-# 
+# Premium dexscreener sniper bot fluxo de trabalho para Mac OS | Instantâneo dexscreener sniper bot fluxo de trabalho para PC Windows. Com detecção de honeypot e rasteamento de preços — otimizado para máximo desempeño en cada plataforma.
 
 
 
